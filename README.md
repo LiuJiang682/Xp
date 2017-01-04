@@ -1,2 +1,2 @@
 # Xp
-Have some fun
+Have some fun and play
